@@ -28,7 +28,7 @@ I enjoy turning ideas into real-world projects with clean and efficient code.
 ---
 
 ### 📫 Contact Me
-- 📧 Email: your-email@example.com
+- 📧 Email: maxammadov.17@gmail.com
 - 🌐 Portfolio: coming soon...
 - 💬 Feel free to reach out anytime
 
